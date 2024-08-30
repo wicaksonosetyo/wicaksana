@@ -1,0 +1,2 @@
+# wicaksana
+ya begitulah
